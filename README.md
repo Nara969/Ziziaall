@@ -1,2 +1,0 @@
-# Ziziaall
-X BDG
